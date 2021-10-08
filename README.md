@@ -2,5 +2,5 @@
 
 ## I'm a Student
 
-- 🌱 I love to playing sports 
+- 🌱 I love playing sports 
 - ⚡ Fun fact: I love eating 
